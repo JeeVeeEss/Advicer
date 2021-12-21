@@ -1,3 +1,3 @@
-# Bem vindos ao ADVICER
+# Bem vindos ao ADVICER ✨
 
 Pequeno projetinho que eu fiz pra praticar 😅🤓
